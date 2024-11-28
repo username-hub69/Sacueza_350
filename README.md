@@ -1,2 +1,2 @@
 # Sacueza_350
-Nakadalang beses na yan
+dalawang beses na yan
